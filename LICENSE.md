@@ -1,4 +1,4 @@
-# 
+# automatic Template for Lunacy for macOS - vector tools and export presets is the best Lunacy for macOS template, featuring vector tools and export presets. Safe, efficient, and
 
 
 
